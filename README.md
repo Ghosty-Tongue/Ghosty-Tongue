@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-Down below you will see my favriote projects, I had made.
+Down below in Pinned projects you will see my favriote projects, I had made.
